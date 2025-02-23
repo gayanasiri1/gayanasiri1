@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **emereld20050529@gmail.com**
 
-- ⚡ Fun fact **127.0.0.1 is home 💚**
+- ⚡ Fun fact **127.0.0.1 is my home 💚**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
